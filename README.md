@@ -1,5 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=heartofcommie&style=flat-square&color=FF0000&label=comrades) 
 
+<span style="color:#fcff5c;">"I</span> <span style="color:#ffec70;">love</span> <span style="color:#ffd452;">walking</span> <span style="color:#ffd452;">in</span> <span style="color:#dabc44;">sunflowers"</span>
+
+
 <div class="rainbow-text">
 	<span class="block-line"><span>
 		<span style="color:#fcff5c">"</span><span style="color:#fcff5c">I</span>
