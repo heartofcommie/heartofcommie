@@ -4,7 +4,7 @@
 
 <a href="https://ibb.co/Lz54gHG8"><img src="https://i.ibb.co/xSHVgd4D/81e626c46f34ad8b69c8c54008d068c7-1.jpg" alt="81e626c46f34ad8b69c8c54008d068c7-1" border="0"></a>
 
-$$\color{#FFDB27}{\text{"i love walking on su flowers"}}$$
+$$\color{#FFDB27}{\text{"i love walking on sunflowers"}}$$
 $$\color{#B42443}{\text{"would you still forgive me if i was an evil?"}}$$
 
 <a href="https://ibb.co/yFNySpGg"><img src="https://i.ibb.co/nMwcCBZQ/Ba-l-ks-z90-20261106211611.png" alt="Ba-l-ks-z90-20261106211611" border="0"></a>
